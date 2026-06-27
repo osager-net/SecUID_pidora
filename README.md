@@ -1,2 +1,2 @@
 # SecUID_pidora
-Авунда сын хуйни, SecUID: MS4wLjABAAAAQbtZHoxF-dtg_zuJ22IfRq7WQmin1RPIw7zDndt5VOyk18lmDxFFXyBiVWWT_RQT
+Авунда сын хуйни, SecUID MS4wLjABAAAAQbtZHoxF-dtg_zuJ22IfRq7WQmin1RPIw7zDndt5VOyk18lmDxFFXyBiVWWT_RQT
